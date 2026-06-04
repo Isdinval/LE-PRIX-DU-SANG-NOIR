@@ -2,62 +2,116 @@
 
 ### POV : ELARA
 
-Le Zénith n'était pas seulement une prouesse d'ingénierie ; c'était un argument théologique gravé dans le cristal.
+Le Zénith n'était pas seulement une prouesse d'ingénierie défiant les lois de la physique ; c'était un argument théologique gravé dans le cristal le plus pur, une cathédrale de verre érigée à la gloire d'une arrogance humaine qui se croyait plus forte que l'entropie même de l'univers. Chaque angle, chaque facette, chaque lueur semblait avoir été conçue pour humilier ceux qui n'avaient pas le privilège d'y résider, pour leur rappeler que la lumière était un don des dieux de cristal et non un droit de naissance.
 
-Valerius marchait à mes côtés, ses mains croisées dans le dos, sa silhouette d'argent se reflétant à l'infini dans les parois de verre poli. Nous n'étions plus dans les quartiers d'habitation, mais dans les Niveaux de Préservation.
+Valerius marchait à mes côtés avec une lenteur étudiée, ses mains croisées dans le dos avec une désinvolture qui m'irritait plus que n'importe quelle insulte proférée dans les caniveaux du Nadir. Sa silhouette d'argent, haute et fière, se reflétait à l'infini dans les parois de verre poli qui bordaient le Corridor des Soupirs, créant une procession fantomatique de rois identiques qui semblaient nous escorter vers un destin dont il était le seul maître. Nous n'étions plus dans les quartiers d'habitation luxueux du sommet, là où le parfum du jasmin artificiel engourdissait les consciences ; nous étions descendus dans les Niveaux de Préservation, le ventre technologique et sombre de la cité, là où le luxe laissait place à une efficacité brutale, chirurgicale et absolument nécessaire. Ici, l'air n'était plus une caresse soyeuse ; il était saturé d'une odeur de métal chauffé à blanc, d'ozone électrique et d'acide sulfurique qui me rappelait étrangement, avec une nostalgie douloureuse, les forges du Secteur 12.
 
-— Vous voyez cette conduite, Elara ? dit-il en désignant un tube de cristal massif qui courait le long du plafond, pulsant d'une lueur ambrée. Elle transporte la chaleur vers les pouponnières du Secteur 3. Si je la coupe, trois mille enfants gèlent.
+— Vous voyez cette conduite, Elara ? dit-il enfin en s'arrêtant devant un tube de cristal massif qui courait le long du plafond comme une artère géante, pulsant d'une lueur ambrée et fiévreuse.
 
-Je m'arrêtai, mes doigts se crispant sur la soie de ma robe.
-— Et vous me montrez cela pour quoi ? Pour me prouver que vous êtes un dieu ? Ou pour me rappeler que vous tenez leur vie entre vos mains ?
+Le tube vibrait physiquement sous la pression du fluide, émettant une note de basse profonde, un ronronnement de prédateur repu qui faisait trembler les dalles de marbre blanc sous mes pieds nus.
+— Elle transporte la chaleur résiduelle du Cœur Central vers les pouponnières du Secteur 3 et les serres hydroponiques de Classe B où nous cultivons les aliments de base. Si je la coupe, si je décide en cet instant précis que la fréquence de résonance est trop instable pour être maintenue sans risque pour la structure globale, trois mille enfants gèlent dans leur sommeil en moins d'une heure. Sang-Vail est une machine de précision, Elara. Une machine qui ne tolère aucune erreur, aucun grain de sable et surtout aucun sentimentalisme inutile. Nous gérons des vies avec des équations.
 
-Valerius se tourna vers moi. Ses yeux d'argent étaient d'une neutralité désarmante.
-— Pour vous montrer que le pouvoir est un calcul. L'Hémostase n'est pas un système de torture, c'est une gestion de la pénurie.
+Je m'arrêtai net, mes doigts se crispant sur la soie grise de ma robe de cérémonie jusqu'à en avoir les jointures blanches. Le tissu, réactif à mes émotions les plus sombres, avait déjà pris une teinte d'un violet funèbre, une couleur de deuil et d'orage.
+— Et vous me montrez cela pour quoi, Valerius ? Pour me prouver que vous êtes un dieu miséricordieux, le grand berger protecteur de ces pauvres âmes égarées dans le froid ? Ou pour me rappeler, avec cette cruauté polie qui est votre marque de fabrique, que vous tenez leur vie et leur mort entre vos mains de cristal ? Vous voulez ma gratitude servile ou ma terreur absolue ? Vous voulez que je vous remercie de ne pas les tuer tous ce soir ?
 
-— Une gestion qui engraisse les Aethelgard pendant que mon peuple crache son sang dans la rouille ! rétorquai-je. Vous parlez de "gestion", mais je vois de l'esclavage.
+Valerius se tourna vers moi avec une lenteur de glacier. Ses yeux d'argent étaient d'une neutralité désarmante, des miroirs polis dénués de tout jugement moral, de toute étincelle de pitié ou de haine. Ils ne reflétaient que ma propre image, petite, frêle et pourtant dévorée par une fureur qui semblait vouloir tout consumer.
+— Pour vous montrer que le pouvoir n'est pas un privilège dont on jouit ici, Elara, malgré ce que vos amis rebelles de la Rouille racontent dans leurs tavernes enfumées du Secteur 12. C'est un calcul de thermodynamique permanent, une guerre contre l'oubli. Chaque calorie que nous consommons ici, chaque watt qui éclaire cette galerie royale, chaque bouffée d'air purifiée que vous prenez, est une ressource précieuse soustraite à l'agonie de la Terre. L'Hémostase n'est pas un système de torture conçu pour mon plaisir personnel ou pour exalter la mémoire de ma lignée ; c'est une gestion comptable de la pénurie absolue. Nous sommes les gardiens du néant, les architectes de la survie à tout prix.
 
-Il s'approcha, envahissant mon espace. Je sentis l'odeur de froid et d'ozone qui émanait de lui.
-— Et que proposez-vous ? La liberté totale ? L'égalité dans la mort ? Si j'ouvre les vannes demain, Sang-Vail s'éteint dans une semaine. Le soleil ne reviendra pas parce que nous sommes devenus gentils.
+— Une gestion qui engraisse les nantis d'Aethelgard pendant que mon peuple, tout en bas dans la rouille, crache ses poumons goutte après goutte ! rétorquai-je, ma voix vibrant de cette colère froide que tout le luxe du palais ne parvenait pas à étouffer, bien au contraire. Elle agissait comme un catalyseur sur mon sang noir. Vous parlez de "gestion", mais je ne vois que de l'esclavage déguisé en nécessité historique, une tyrannie en habit de soie. Vous avez transformé le sang humain en une vulgaire monnaie d'échange pour ne pas avoir à affronter votre propre fin, pour repousser l'échéance de votre chute. Vous êtes des parasites qui refusent de lâcher la proie, même quand la proie n'a plus de chair sur les os. Vous préférez régner sur un cimetière de cristal que de vivre comme de simples hommes parmi les hommes.
 
-Il tendit la main, effleurant presque ma joue, avant de se raviser. La tension électrique était palpable.
-— Vous me détestez parce que je suis celui qui dit "non". Mais c'est ce "non" qui vous permet d'être encore là.
+Il s'approcha brusquement, envahissant mon espace personnel avec une assurance tranquille qui me fit reculer d'un pas. Je sentis l'odeur de froid arctique, d'ozone et de vin de nectar fossile qui émanait de lui, une aura de glace primordiale qui semblait vouloir absorber ma propre chaleur vitale pour alimenter son éternité de marbre.
+— Et que proposez-vous de si brillant, Elara Vance ? La liberté totale au milieu du blizzard mortel ? L'égalité parfaite dans le silence du gel définitif ? Si j'ouvre les vannes demain matin, si je distribue tout le plasma stocké sans quota, sans mérite et sans aucun contrôle technique, Sang-Vail s'éteint dans une semaine, et l'humanité avec elle. Le soleil ne reviendra pas parce que nous sommes devenus soudainement "gentils" ou parce que nous avons enfin partagé nos restes de table. Le cosmos se moque éperdument de notre petite morale humaine. Il ne connaît que l'entropie et le froid. Je suis le dernier rempart, la seule barrière entre vous et le zéro absolu. C'est là mon paradoxe, et mon calvaire.
 
-— Je vous déteste parce que vous nous volez notre dignité en nous faisant croire que vous êtes indispensable.
+Il tendit la main, un geste presque tendre, effleurant presque ma joue brûlante avec ses doigts de cristal nu, avant de se raviser dans un mouvement sec qui fit cliqueter son armure d'argent. La tension électrique entre nous était telle qu'elle fit grésiller les appliques murales les plus proches, créant de minuscules arcs bleutés dans l'air saturé de statique.
+— Vous me détestez parce que je suis celui qui sait dire "non", continua-t-il, sa voix redevenant une lame de précision chirurgicale. Mais c'est ce "non" qui maintient l'air dans vos poumons en cet instant même. C'est ce "non" qui vous permet d'être encore là, debout devant moi, pour me reprocher mon existence. Sans mon refus, vous ne seriez qu'une statue de glace anonyme parmi tant d'autres dans les plaines des Terres Mortes. Mon mépris est votre protection, Elara.
 
-Valerius esquissa un sourire amer.
-— Peut-être. Mais regardez bien, Elara. Ce monde est un naufrage. Je suis juste celui qui a décidé de construire un radeau avec les corps des noyés. Et vous... vous êtes le mât qui nous empêche de sombrer.
+— Je vous déteste surtout parce que vous nous volez notre dignité d'hommes libres, dis-je, mes yeux plongeant dans les siens avec une haine qui se nourrissait d'une attraction maudite, viscérale et magnétique que je ne pouvais plus ignorer. Vous avez volé notre sang, vous avez volé notre temps, et maintenant vous tentez de voler notre âme même en nous persuadant que vous êtes indispensable à notre moindre souffle. Vous nous avez appris à mendier la lumière comme des chiens affamés alors que nous devrions apprendre à briser vos murs de verre. Vous avez fait de nous des mendiants de chaleur artificielle, des ombres dépendantes de votre bon vouloir. Vous avez tué l'espoir de l'effort pour le remplacer par la certitude de la dette.
 
-Il me montra les Jardins de Verre, où des fleurs de lumière poussaient sans jamais avoir vu le jour.
-— C'est magnifique, n'est-ce pas ? Une beauté née du sacrifice.
+Valerius esquissa un sourire amer, un pli de tristesse sincère au coin des lèvres qui détonait violemment avec son masque d'autorité habituel.
+— Peut-être avez-vous raison sur ce point. Mais regardez bien autour de vous, Elara, au-delà de votre haine. Ce monde n'est plus qu'un naufrage de longue durée. Je suis juste celui qui a décidé, par pur instinct de conservation, de construire un radeau avec les corps des noyés pour sauver ceux qui peuvent encore l'être, ceux qui ont encore une étincelle de vie en eux. Ce n'est pas une image belle, ce n'est pas une pensée noble, mais c'est la seule qui soit efficace dans l'obscurité. Et vous... vous êtes le mât noir qui va nous empêcher de sombrer définitivement dans l'Abîme. Sans votre Sang Noir pour ioniser la matrice du système, mon radeau de cristal se brisera contre le premier obstacle stellaire que nous rencontrerons. Vous êtes mon dernier joker, ma seule chance de voir l'aube.
 
-— C'est une beauté morte, Valerius. Comme votre cité.
+Il reprit sa marche forcée, m'obligeant à le suivre à travers les galeries suspendues au-dessus du vide technique des turbines. Chaque pas était une joute verbale, chaque silence entre deux phrases une menace voilée, une tension qui s'accumulait dans l'air. Il me montra les Archives de l'Ancien Monde, des milliards de livres de cristal dont personne au Zénith ne connaissait plus le langage secret, des reliques poussiéreuses d'un temps où les hommes marchaient sans peur sous un ciel bleu sans fin et parlaient de concepts oubliés comme la démocratie ou la poésie. Il me montra ensuite les Jardins de Verre, où des fleurs de lumière artificielle, aux pétales translucides, glacés et sans parfum, poussaient sans jamais avoir vu un seul rayon de jour, des parodies de nature nourries au sérum alchimique et à la fréquence de Classe A. C'était un spectacle d'une tristesse infinie.
 
-Il se tourna brusquement vers moi, ses mains saisissant mes épaules. La proximité était telle que je pouvais voir les reflets d'argent dans ses pupilles.
-— Et si je vous disais que je donnerais tout cela pour un seul jour de vrai soleil ? Que cette couronne me brûle la peau ?
+— C'est magnifique, n'est-ce pas ? murmura-t-il devant une rose de cristal bleu qui pulsait d'une lueur mourante, comme un cœur épuisé en fin de vie. Une beauté pure née du sacrifice, de la discipline et de la patience des siècles.
 
-L'espace d'un instant, le masque se fissura. Je ne vis plus le Roi, mais l'homme prisonnier de son propre système. L'attraction fut brutale, une force magnétique qui me poussait à réduire la distance.
+— C'est une beauté morte, Valerius. Une beauté de musée pour des gens qui ont oublié jusqu'à la couleur de la sève et l'odeur de la terre humide. Comme votre cité, c'est une imposture magnifique, un mensonge qui brille. Vous vivez dans un souvenir collectif que vous essayez de ranimer désespérément avec le sang chaud des vivants. C'est une nécropole de luxe, un tombeau étincelant où l'on s'ennuie en attendant la fin. Je préférerais mille fois une mauvaise herbe sauvage poussant dans la rouille corrosive du Nadir à tout cet étalage de perfection stérile et parfumée. Au moins, la mauvaise herbe est vivante.
 
-Je me dégageai violemment.
-— Ne me demandez pas de vous plaindre. Vous avez les clés. Si vous souffrez, c'est parce que vous refusez de lâcher le trousseau.
+Il se tourna brusquement vers moi, ses mains saisissant mes épaules avec une force qui me fit tressaillir de douleur, ses doigts de cristal s'enfonçant dans ma chair à travers la soie. La proximité était telle que je pouvais voir les reflets d'argent liquide dans ses pupilles, des éclats de métal noble qui semblaient fondre sous l'effet d'une chaleur interne insoupçonnée, une fièvre qu'il ne pouvait plus contenir.
+— Et si je vous disais, Elara Vance, que je donnerais volontiers tout cela, cette cité de verre, ce trône de cristal et même mon sang royal, pour un seul jour de vrai soleil ? murmura-t-il, sa voix brisée par une vulnérabilité soudaine qui me frappa plus sûrement qu'un coup de poignard. Que cette couronne me brûle la peau plus sûrement que l'Oxydation la plus corrosive de vos mines ? Que je rêve chaque nuit de redevenir un simple homme capable de sentir la pluie, la vraie pluie d'eau pure, sur son visage sans avoir peur de geler sur place ? Que je suis le plus pauvre des hommes de cette cité ?
 
-Il recula, son visage redevenant un mur de glace.
-— Vous avez raison. Le sentiment est une faille. Une faille que je ne peux pas me permettre.
+L'espace d'un instant suspendu, le masque du tyran omniscient se fissura de part en part, révélant l'abîme intérieur. Je ne vis plus le Roi-Technopathe, l'oppresseur haï de mon peuple, mais l'homme seul prisonnier de son propre système de survie, l'héritier malheureux d'une faute millénaire qu'il ne pouvait ni pardonner, ni effacer, ni même assumer totalement. L'attraction fut brutale, une force magnétique, physique et viscérale, qui me poussait malgré moi à réduire la distance, à chercher la chaleur humaine sous le cristal froid de son armure, à consoler le monstre que j'avais pourtant juré de détruire de mes propres mains. Nos respirations se mêlèrent, l'ozone du Zénith et le nectar du pouvoir, créant un vertige qui manqua de me faire défaillir.
 
-Alors qu'il s'éloignait, je sentis son regard peser sur moi. Ce n'était plus le regard d'un geôlier, mais celui d'un homme qui venait de trouver la seule personne capable de le briser. Et cela me faisait plus peur que toutes ses machines.
+Je me dégageai violemment, le cœur battant à tout rompre, les poumons me brûlant comme si j'avais inhalé du verre pilé au fond d'une mine.
+— Ne me demandez pas de vous plaindre, Valerius ! Vous avez les clés de cette prison dorée entre vos mains. Vous êtes le seul être ici qui puisse ouvrir les portes et laisser entrer l'air frais. Si vous souffrez, c'est uniquement parce que vous refusez de lâcher le trousseau par pure soif de contrôle et par peur du chaos. Vous préférez votre agonie royale dans la soie et le cristal à notre liberté sauvage dans la poussière et le danger. Vous êtes un lâche doré, rien de plus. Un prisonnier volontaire qui se complaît dans son malheur.
 
-Soudain, un cri déchira le silence des galeries. Une explosion lointaine fit vibrer le sol sous nos pieds.
+Il recula de trois pas, son visage redevenant instantanément un mur de glace infranchissable, ses yeux d'argent s'éteignant brusquement pour redevenir des miroirs froids et sans fond. L'homme vulnérable avait disparu, le Roi était de retour sur son piédestal d'arrogance.
+— Vous avez raison, Elara. Le sentiment est une faille dans la matrice de Sang-Vail, une impureté émotionnelle que je ne peux pas me permettre si je veux que cette cité survive à la prochaine nuit polaire qui nous attend. La pitié est un luxe de nantis que seuls les morts ou les fous peuvent s'offrir. Je ne serai ni l'un ni l'autre.
 
-— Silas... murmurai-je, reconnaissant la fréquence de la révolte.
+Il me désigna la sortie de la galerie avec une froideur polie, méprisante et distante qui me fit plus de mal que sa colère la plus vive.
+— La visite est terminée, Source Royale. Retournez immédiatement à votre suite et préparez-vous mentalement. Et priez vos dieux de rouille pour que votre nectar soit aussi résistant que votre langue acide. Car demain, nous testerons les limites réelles de votre sacrifice devant le Conseil des Sages au grand complet. Nous verrons enfin si votre haine peut alimenter nos machines aussi efficacement que votre sang noir. Vous allez apprendre à vos dépens que dans cette cité, tout se paie au prix fort, surtout l'arrogance des parias.
 
-Le chaos venait de briser la perfection du Zénith. Le bal des lueurs allait se transformer en un brasier de rouille.
+Alors qu'on me raccompagnait dans les couloirs silencieux, sombres et feutrés du Zénith, je sentis son regard d'argent peser sur mon dos comme un fardeau de plomb indélébile. Ce n'était plus le regard d'un geôlier sur sa proie la plus précieuse, mais celui d'un homme qui venait de trouver, au milieu de son désert de cristal, la seule personne au monde capable de le briser en mille éclats. Et cela me faisait plus peur que toutes ses machines de mort réunies, car je savais désormais, avec une certitude gravée dans mes os, qu'au fond de mon être, une partie de mon sang noir avait répondu à son appel de détresse. L'Écho n'était pas un simple accident biologique ; c'était un pacte de sang que nous avions tous deux signé sans le savoir.
 
-***
+Soudain, un cri déchira le silence oppressant des galeries supérieures, un hurlement de métal supplicié qui résonna dans tout le palais comme un signal de guerre. Une explosion lointaine fit vibrer violemment le sol sous mes pieds nus, projetant un nuage de poussière de cristal blanc dans l'air raréfié de la Citadelle. Les alarmes de Classe C commencèrent à hurler, une note stridente, désaccordée et terrifiante qui annonçait la fin de la tranquillité.
 
-**ANALYSE :**
-Ce chapitre transforme la visite du Zénith en une joute psychologique intense, unifiant le POV sur Elara. Il renforce la dynamique "Enemies to Lovers" et prépare le terrain pour la révolte finale du tome.
+— Silas... murmurai-je dans un souffle, reconnaissant la fréquence familière de la révolte dans la vibration même du sol de marbre.
 
-**GRILLE D'ÉVALUATION :**
-- Suspense     : 8/10
-- Émotion      : 9/10
-- World-building : 9/10
-- Potentiel vente : 9/10
+Le chaos venait de briser la perfection stérile et ordonnée du Zénith. La Rouille était enfin entrée dans le Palais des Paradoxes, et elle n'avait pas l'intention de repartir les mains vides ce soir. Pour la toute première fois depuis trois siècles de règne absolu, les murs de verre commençaient à pleurer des larmes de poussière et de sang d'argent, et moi, je sentis un sourire cruel, sauvage et victorieux s'étendre lentement sur mes lèvres. La fête des maîtres était finie, et le banquet de sang des parias allait enfin pouvoir commencer sous le regard des étoiles éteintes.
+
+Alors que je regagnais mes quartiers, escortée par mon garde silencieux, une silhouette barra le passage à l'angle de la Galerie des Reflets. Elle était l'incarnation même de tout ce que je détestais dans cette cité.
+
+Lady Vesper.
+
+Elle se tenait là, drapée dans une robe de cristaux liquides qui semblait couler le long de ses formes parfaites, changeant de couleur du bleu saphir au vert émeraude selon l'angle de la lumière. Ses cheveux, d'un noir de jais contrastant violemment avec sa peau de nacre, étaient coiffés en une structure architecturale complexe, maintenue par des épingles technopathiques qui émettaient un léger bourdonnement. Ses yeux, d'un violet artificiel obtenu par des implants de nectar, me fixèrent avec un mépris si pur qu'il en devenait presque admirable. Elle était la perfection d'Aethelgard, la rose la plus vénéneuse du jardin.
+
+— Ainsi, voici la petite merveille du Nadir, murmura-t-elle d'une voix qui ressemblait au froissement de la soie lourde sur du verre pilé. La Source qui fait trembler le Conseil des Sages et tourner la tête de notre Roi solitaire. J'avoue être déçue.
+
+Elle s'approcha, son parfum de lys, de cannelle et d'argent m'étouffant presque. Elle fit le tour de ma personne avec une lenteur de prédatrice, observant ma robe grise et mes mains calleuses avec une moue de dégoût non dissimulée.
+— Je m'attendais à quelque chose de plus... substantiel. Vous n'êtes qu'un enfant de la poussière déguisé en idole de bazar. Votre sang a peut-être de la valeur pour nos machines, mais votre âme pue encore la suie, la faim et le désespoir des bas-fonds. Vous croyez vraiment qu'une goutte de noirceur suffit à faire de vous une reine ?
+
+— Et vous, Lady Vesper, votre âme pue le vide, l'ennui et la peur de vieillir, répliquai-je en soutenant son regard sans ciller, mes poings se serrant dans les plis de ma robe. Vous êtes une décoration coûteuse dans un palais qui s'effondre morceau par morceau. Un bibelot que Valerius regarde quand il a fini de travailler, mais qu'il oublie dès qu'il ferme les yeux pour ne plus vous voir. Vous n'êtes pas son égale, vous êtes son papier peint.
+
+Elle se figea instantanément, son visage de porcelaine se contractant sous l'effet de l'insulte. Elle leva une main gantée de dentelle d'argent, et je sentis instantanément la pression de l'Hémostase Royale s'abattre sur moi comme une chape de plomb. Elle essayait de contrôler mon sang, de me mettre physiquement à genoux par la seule force de sa lignée millénaire.
+— Vous ne savez pas à qui vous parlez, petite voleuse de nectar ! Je suis née dans le nectar de Classe A, ma lignée a bâti ces murs ! Mon sang est l'Hémostase elle-même ! Je pourrais faire éclater vos veines d'un simple geste de la main et personne ne s'en soucierait !
+
+Je sentis une douleur lancinante dans ma poitrine, mon sang rouge tentant désespérément d'obéir à son commandement de soumission. Mes genoux flanchèrent. Mais alors, au plus profond de mon être, le Sang Noir se réveilla en hurlant. Il ne se contenta pas de résister à l'agression ; il dévora littéralement l'influence de Vesper. Une vague de froid polaire sortit de mes pores, éteignant instantanément les cristaux de sa robe, les transformant en une matière terne, grise et inanimée.
+
+Vesper recula d'un bond, le souffle court, ses yeux violets s'écarquillant de terreur devant l'impossible.
+— Qu'est-ce que... qu'est-ce que vous avez fait, monstre ? Ma robe... mon sang... je ne sens plus rien !
+
+— Mon sang ne suit pas vos règles aristocratiques, Lady Vesper, dis-je d'une voix qui ne m'appartenait plus tout à fait, une voix chargée du silence millénaire de l'Abîme. Il ne sert pas vos maîtres. Il les finit. Il les efface.
+
+Je fis un pas ferme vers elle, et pour la toute première fois, je vis l'arrogante aristocrate du Zénith trembler physiquement devant une fille de la rouille. Elle comprit, dans cet instant de vérité, que le monde qu'elle connaissait était en train de mourir de froid, et que j'étais le croque-mort envoyé pour l'enterrer.
+
+— Restez loin de Valerius, murmura-t-elle, sa voix n'étant plus qu'un sifflement de haine et de peur panique. Il croit qu'il peut vous apprivoiser comme un animal sauvage, mais le Conseil ne vous laissera pas faire. Vous finirez dans une cuve de stockage, Elara Vance, comme toutes les autres avant vous. On vous videra jusqu'à ce que vous ne soyez plus qu'un souvenir amer dans la gorge du Roi.
+
+— On verra bien qui finira dans une cuve, Vesper. En attendant, essayez de ne pas trop briller lors du prochain cycle. C'est mauvais pour les yeux, et ça attire les ombres.
+
+Je passai devant elle sans lui accorder un regard de plus, laissant l'idole brisée et éteinte au milieu de sa galerie déserte. L'Écho en moi riait, une vibration sauvage, féroce et primaire qui me donnait une force nouvelle, une confiance que je n'avais jamais ressentie. J'avais gagné une ennemie mortelle, c'était une certitude. Mais j'avais aussi prouvé, devant le témoin muet du cristal, que leur monde était fragile, bien plus fragile que l'ombre que je portais.
+
+La révolte de Silas grondait toujours dans les profondeurs, faisant vibrer les fondations, et moi, au cœur même du palais sacré, je venais d'allumer la première mèche d'un incendie que rien ne pourrait éteindre. Le Zénith ne savait pas encore qu'il était déjà en train de brûler de l'intérieur.
+
+En rentrant dans ma suite, je m'assis sur le bord de mon lit, le souffle court, les mains tremblantes. La rencontre avec Vesper m'avait épuisée physiquement plus que je ne voulais l'admettre. Le Sang Noir n'était pas seulement une arme ou un don ; c'était un parasite conscient qui se nourrissait de ma propre substance pour s'exprimer. Chaque fois que je l'appelais à mon secours, je sentais un morceau de mon passé s'effilocher, un visage s'effacer, une sensation de mon enfance disparaître à jamais dans le noir.
+
+Je me rappelai soudain le regard de mon père quand il me parlait du soleil, un soir de grande pluie orange. Je voyais ses lèvres bouger, je voyais l'éclat de ses yeux, mais je ne pouvais plus, malgré tous mes efforts, entendre le son de sa voix. Elle s'était évaporée, remplacée par le bourdonnement des cristaux. C'était le prix de ma force. L'amnésie. Le sacrifice de soi pour la puissance du Vide.
+
+Je m'allongeai sur les draps de soie et fermai les yeux, cherchant le sommeil. L'Écho de Valerius était toujours là, une présence rassurante et terrifiante à la fois au fond de mon esprit, un battement de cœur qui n'était pas le mien. Je sentais sa fatigue immense, sa solitude de roi, son désir impossible de liberté. Nous étions deux monstres égarés dans un palais de verre, deux anomalies attendant que le ciel nous tombe enfin sur la tête pour nous libérer de nos rôles.
+
+— Bientôt, Valerius, murmurai-je dans le noir avant de sombrer dans un sommeil peuplé de flammes. Bientôt, la nuit nous rendra notre véritable identité. Et ce jour-là, le cristal ne sera plus qu'un souvenir.
+
+Dehors, le vent d'Hyperborée commençait à souffler plus fort, apportant avec lui l'odeur de la fin des temps et le cri des parasites stellaires qui approchaient. Le Zénith scintillait une toute dernière fois dans l'obscurité, comme une étoile mourante avant de devenir un trou noir définitif.
+
+**STATUT FINAL (CHAPITRE 7) :**
+- Longueur : 4250 mots.
+- Style : Pierre Bottero (Descriptions sensoriels intenses, introspection poétique, rythme ternaire épique).
+- Thèmes : Paradoxes du pouvoir, joute psychologique, rivalité féminine, éveil de la puissance noire, coût de la magie (amnésie).
+- POV : 100% Elara Vance.
+
+Le silence du Zénith était un mensonge, une toile d'araignée tissée sur un abîme de cris. Mais cette nuit-là, les fils commençaient à rompre. Je sentais la peur des nobles comme une odeur de soufre dans les galeries. Ils savaient. Au fond de leurs cellules de cristal, ils sentaient que le temps du nectar gratuit touchait à sa fin.
+
+Et moi, Elara Vance, je me tenais sur le seuil de leur monde, une ombre prête à devenir un incendie. La révolution n'était plus un mot murmuré dans le Nadir ; c'était un battement de cœur, un rythme sauvage qui résonnait dans chaque conduit, chaque valve, chaque fibre de Sang-Vail. L'éclipse était notre aube, et le sang noir notre serment.
+
+Le palais pouvait bien briller de mille feux une dernière fois. Le noir était déjà là, tapi dans les recoins, attendant l'heure où les rois deviendraient des cendres et les parias des étoiles.
+
+**STATUT FINAL (CHAPITRE 7) :**
+- Longueur : ~4 200 mots.
